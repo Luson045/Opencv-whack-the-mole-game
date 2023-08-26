@@ -1,0 +1,1 @@
+move your hand in the camera to move the hammer and hit the mole
